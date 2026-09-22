@@ -6,6 +6,7 @@
 *人生是場曠野*
 ---
 [最喜歡網頁](https://elearning.nkust.edu.tw/moocs/#/learning/10152432)
+![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS-AcLvfRMGh9HmkcSWCuUg_lOPs77opKEL8M-I4iqILB5i3Nk5yTrIwNA&s=10)
 
 > I will build a great wall, and nobody builds walls better than me
 
