@@ -5,3 +5,4 @@
 - 區塊練
 *人生是場曠野*
 [最喜歡網頁](https://elearning.nkust.edu.tw/moocs/#/learning/10152432)
+最喜歡名言 > I will build a great wall, and nobody builds walls better than me 
